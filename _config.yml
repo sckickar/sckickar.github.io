@@ -12,8 +12,8 @@ email: abgaoe@gmail.com
 description: '2lazy4css... @ 2021
 
 '
-baseurl: ''
-url: https://skeltonmod.github.io
+baseurl: 
+url: https://skickar.github.io
 twitter_username: jekyllrb
 github_username: jekyll
 remote_theme: pages-themes/hacker@v0.2.0
