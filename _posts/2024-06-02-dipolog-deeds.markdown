@@ -23,6 +23,9 @@ After the "date" was over, I initially decided to eat dinner at the hotel lobby,
 
 I had fun with the "date," even if it was just for a short while. She reinvigorated some of the things I used to enjoy, like simply having fun. I think it is safe to say that I like her now.
 
+\
+Even if it doesn't go the way I want, at least I've made peace with myself that this may be my last foray into romance. But if it goes well, then it might be a whole new chapter altogether. Otherwise, I'll stay away from dating as much as possible
+
 > **Message from the editor**
 > atay ka elijah
 
