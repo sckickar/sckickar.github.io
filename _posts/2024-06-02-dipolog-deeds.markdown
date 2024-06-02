@@ -62,6 +62,8 @@ Actually, fuck it. I'm gonna be blunt about all of this. \[REDACT NAPUD\]
 ![IMG_4152.png](/uploads/IMG_4152.png)
 
 > I just had the most amazing dream
+>
+> 
 > We were happy...
 > It was night yet she could see\
 > As the moonlight made pass through the water\
