@@ -23,7 +23,7 @@ After the "date" was over, I initially decided to eat dinner at the hotel lobby,
 
 I had fun with the "date," even if it was just for a short while. She reinvigorated some of the things I used to enjoy, like simply having fun. I think it is safe to say that I like her now.
 
-> Message from the editor
+> **Message from the editor**
 > atay ka elijah
 
 Back to my friend who had a different perspective. For history and context, his name is James. We've been friends since college and we work at the same company. James and I go way back with dating apps, and we even formulated a thought process known as the "James-Eli Dating Procedures." We still have a document of it somewhere, but I'm pretty sure it's gone now. The dating procedure includes a few things to ensure that the date, whether found by accident or meticulously planned, will hopefully yield better results and prevent it from leaving a bad taste in our mouths if it goes south.
@@ -52,7 +52,7 @@ Okay, so I asked my friend James to do the dating procedures for me since he's n
 
 Actually, fuck it. I'm gonna be blunt about all of this. \[REDACT NAPUD\]
 
-> Message from the editor
+> **Message from the editor**
 > Yawa ayaw sa pag taka taka og yawit HAHAHAHAHA
 > think positive lang red horse ra og tanduay tambal ana
 > enjoy lang sa ka karon
@@ -63,7 +63,7 @@ Actually, fuck it. I'm gonna be blunt about all of this. \[REDACT NAPUD\]
 
 > I just had the most amazing dream
 > We were happy...
-> It was night yet she could see  
-As the moonlight made pass through the water  
-Like fingers pointing the way  
-Who was holding her hand and took her away
+> It was night yet she could see\
+> As the moonlight made pass through the water\
+> Like fingers pointing the way\
+> Who was holding her hand and took her away
